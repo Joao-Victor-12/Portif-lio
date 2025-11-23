@@ -16,7 +16,7 @@ Sinta-se à vontade para explorar os repositórios e o código. Estou sempre bus
 **Interesses:** Tecnologia Bancária, Análise de Dados, Inteligência Artificial, Produtos Digitais, Desenvolvimento de Software.
 
 **Conecte-se comigo:**
-- [LinkedIn]([https://www.linkedin.com/in/seu-linkedin](https://www.linkedin.com/in/jo%C3%A3o-victor-abreu-455208351/))
-- [Seu E-mail](joaovictoralvesabreu1@gmail.com)
+- [LinkedIn]([https://www.linkedin.com/in/seu-linkedin](https://www.linkedin.com/in/jo%C3%A3o-victor-abreu-455208351/)) 
+- [E-mail](joaovictoralvesabreu1@gmail.com) 
 
 Obrigado(a pela visita!
